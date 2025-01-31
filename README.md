@@ -1,1 +1,1 @@
-# http-kennyscp.github.io-
+Berserk Türkçe Çeviri
